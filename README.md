@@ -1,3 +1,3 @@
 25/09/2026
 
-<!-- Round 1 · 2026-09-25 14:17:50 · K1KQJgWs · carolj.moore@att.net, barlowcurran2114@bellsouth.net -->
+<!-- Round 2 · 2026-09-25 14:17:56 · BvjKIrJi · macon109a@yahoo.com, 2bigbend4us@comcast.net -->
